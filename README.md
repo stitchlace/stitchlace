@@ -1,5 +1,3 @@
-[rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@deacon) [neospring](https://neospring.org/@deaconess)
+[rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@deacon) [neospring](https://neospring.org/@deaconess) [atabook](https://dracula.atabook.org) 
 
-<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=314mkicxlkkdu2xbfq5sn4qlspni">
-  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=314mkicxlkkdu2xbfq5sn4qlspni" alt="Data Card for Spotify">
-</a>
+[sign my 🎄!](https://colormytree.me/2024/01JE1T4HZ6KGKAGWFSXTX1PVQ9)
