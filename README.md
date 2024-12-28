@@ -3,7 +3,7 @@
 
 ![screenshot taken by cahaya.....](https://file.garden/Z0hvJAtLHjiPEoj3/Untitled620_20241205113427.png)
 
-veil / rei / amane
+veil / rei / ezekiel
 
 she / he demigirlboy
 
