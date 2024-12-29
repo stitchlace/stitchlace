@@ -1,14 +1,14 @@
 &nbsp;
 <div align="center">
 
-![screenshot taken by cahaya.....](https://file.garden/Z0hvJAtLHjiPEoj3/Untitled620_20241205113427.png)
+[[https://github.com/kittinan/spotify-github-profile][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=314mkicxlkkdu2xbfq5sn4qlspni&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=d09951)]]
 
-veil / rei / ezekiel
+veil / ezekiel / mihael
 
-she / he demigirlboy
+he / she demigirlboy
 
 i love my friends & oomfies !
   
- [rentry](https://rentry.co/corrosive) [retrospring](https://retrospring.net/@deacon) [neospring](https://neospring.org/@deaconess) [atabook](https://dracula.atabook.org) 
+ [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@deacon) [neospring](https://neospring.org/@deaconess) [atabook](https://dracula.atabook.org) 
 <div>
   
