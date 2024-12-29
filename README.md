@@ -9,6 +9,6 @@ he / hyr demigirlboy
 
 i love my friends & oomfies !
   
- [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@akis) [neospring](https://neospring.org/@akis) [atabook](https://dracula.atabook.org) 
+ [rentry](https://rentry.co/wrecked) [retrospring](https://retrospring.net/@hbo) [neospring](https://neospring.org/@hbo) [atabook](https://dracula.atabook.org) 
 <div>
   
