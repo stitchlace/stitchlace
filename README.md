@@ -5,7 +5,7 @@
 
 ![](https://file.garden/Zr5NWGsyfhIXOD_A/343DSDD.png)
 
-(s)he / lace demiboygirl
+he / shy enby lesbian
 
 i love my friends & oomfies !
   
